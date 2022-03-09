@@ -14,7 +14,7 @@ I am 29 years old
 
 I was born and raise in Ukraine
 
- I have master degree of `Hotel and Restaurant Business`
+I have master degree of `Hotel and Restaurant Business`
 
 # My passion and future goals
 
