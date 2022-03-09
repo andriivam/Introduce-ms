@@ -18,7 +18,7 @@ I was born and raise in Ukraine
 
 # My passion and future goals
 
-I love fishing, traveling and codding
+I love fishing, traveling :earth_americas: and codding :computer:
 
 I am a student of the program
 
